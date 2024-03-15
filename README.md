@@ -11,7 +11,7 @@ Note: I was motivated by my ex hinting towards coming out with all this shit for
 
 Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it too seriously.
 
-Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence. [Some of it is *even* an outright lie](https://youtube.com/clip/Ugkxi7AH9WUA0IeQZ3kjPoJf_op-Q3FD9o62?si=g5HuGZ0q9Ipjmgai), if you could believe that. Most of it is on point though.
+Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence.
 
 Take it with a grain of salt.
 
@@ -35,7 +35,7 @@ This whole time, I'm being blackmailed by my boss to work harder or else my litt
 
 In EdTech, as it turns out, we call this a "learning experience".
 
-A little bit after I start my Masters, who conveniently shows up in my life but a staggeringly ✨beautiful✨  self-proclaimed "sex-addicted" PHD student who wanted to fuck me after her ex said to stay away from me.
+A little bit after I start my Masters, who conveniently shows up in my life but a staggeringly ✨average✨  self-proclaimed "sex-addicted" PHD student who wanted to fuck me after her ex said to stay away from me.
 
 In the wild west of Worcester, as an at *most* 6/10, we seize these opportunities.
 
