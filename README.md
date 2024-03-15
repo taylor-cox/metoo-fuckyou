@@ -383,7 +383,7 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "I might be a pedo, but hey, at least I got to fist a cunt." (wait a minute! that can mean two things!)
 
-"Are you talking to me, or putting on a show for the guy next door?"
+"Are you talking to me, or putting on a show for the guy next door?" (who the hell rents here in the winter?)
 
 "Pussy pass: accepted. Proceed swiftly forward."
 
