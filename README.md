@@ -11,6 +11,10 @@ Note: I was motivated by my ex hinting towards coming out with all this shit for
 
 Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it too seriously.
 
+Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence. Some of it is *even* an outright lie. Everybody lies.
+
+Take it with a grain of salt.
+
 Enjoy.
 
 ## Spring/Summer, 2022. The WPI "Masters" Experience.
