@@ -11,7 +11,7 @@ Note: I was motivated by my ex hinting towards coming out with all this shit for
 
 Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it too seriously.
 
-Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence. Some of it is *even* an outright lie.
+Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence. [Some of it is *even* an outright lie](https://youtube.com/clip/Ugkxi7AH9WUA0IeQZ3kjPoJf_op-Q3FD9o62?si=g5HuGZ0q9Ipjmgai), if you could believe that. Most of it is on point though.
 
 Take it with a grain of salt.
 
