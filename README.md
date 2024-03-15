@@ -7,7 +7,7 @@ I'm posting it online, directly to my GitHub, because fuck it and fuck you.
 
 It's going to be a fun trip down memory lane. Let's start.
 
-Note: I was motivated by my ex hinting towards coming out with all this shit for her #metoo moment a few years too late. She never said it explicitly, but ya know. She had no problem telling my last gay boss man about at least *some* of this shit to try and get me in his pants. Gross. I'd rather be raped in a cell.
+Note: I was motivated by my ex hinting towards coming out with all this shit for her #metoo moment a few years too late. She never said it explicitly, but ya know. She had no problem telling my last gay boss man about at least *some* of this shit to try and get me in his pants (I *think*). Gross. I'd rather be raped in a cell.
 
 Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it too seriously.
 
