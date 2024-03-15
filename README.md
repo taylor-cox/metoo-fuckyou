@@ -308,6 +308,10 @@ I'm sure some of this story is inaccurate, or possibly even out of touch with re
 
 My apologies. It's been a rough couple years, wouldn't ya know. Changes the way you think about things.
 
+This all seemed, I don't know, a little overboard, don't you think? You *have* my playlists.
+
+I don't know, fuck it.
+
 Here's all the information that I have. Welcome to Open Source Software.
 
 Feast, motherfuckers.
