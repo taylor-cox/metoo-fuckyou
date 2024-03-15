@@ -11,14 +11,16 @@ Note: I was motivated by my ex hinting towards coming out with all this shit for
 
 Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it too seriously.
 
-Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence. Some of it is *even* an outright lie. Everybody lies.
+Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence. Some of it is *even* an outright lie.
 
 Take it with a grain of salt.
 
 Enjoy.
 
 ## Spring/Summer, 2022. The WPI "Masters" Experience.
-The story might start before this depending on who you ask, but this is the most interesting part of everything from my perspective. Let's start here.
+The story might start before this depending on who you ask, but this is the most interesting part of everything from my perspective. I'd be *so* willing to talk about all my fuck ups more, so feel free to ask me to have a chat! (no thanks).
+
+Let's start here.
 
 ---
 
