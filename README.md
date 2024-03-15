@@ -109,6 +109,10 @@ I guess I did fist her which she wasn't too fond of, but we had a safe word at t
 
 "No", would actually be the term that I would use.
 
+"No" is a little hard to say when you're doing consentual-non-consent. Whatever the fuck that clusterfuck of words means to any of you.
+
+Safe word!
+
 Personally, looking back at what I've been through, *put tin foil hat on* I think she was being blackmailed, and if so, I would like to thank the PHD students of WPI or whoever put her up to that shit for giving me my own personal anal and very fistable sex slave.
 
 Crazy shit.
