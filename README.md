@@ -180,7 +180,7 @@ Let's keep that lil tidbit in the memory bank for a hot sec.
 ### Part 5: The Plan.
 At this point, I drop out of my Masters, and get pretty fucking depressed. I isolate in my room for about two months thinking of all the ways I'd like to kill everyone who just fucked me over (I didn't and won't kill anyone, but it is nice to fantisize sometimes. Don't tell me you haven't.). After about 1 month, I try to think of the best way to die, and what do you know: I have the best idea ever.
 
-I download government-sanctioned child porn directly onto my Windows 11 computer. (As I knew at the time), the US Government is the largest collector and distributor of child porn that has ever existed, and most of the websites on Tor at this point (outside of a few) are FBI honeypots. It's interesting to think that this shit is legal.
+I download government-sanctioned child porn directly onto my Windows 11 computer. (As I knew at the time), the US Government is the largest collector and distributor of child porn that has ever existed (I hope that's not just some bs I read on the internet), and most of the websites on Tor at this point (outside of a few) are FBI honeypots. It's interesting to think that this shit is legal.
 
 Are we the bad guys?
 
