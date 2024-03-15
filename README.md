@@ -9,7 +9,9 @@ It's going to be a fun trip down memory lane. Let's start.
 
 Note: I was motivated by my ex hinting towards coming out with all this shit for her #metoo moment a few years too late. She never said it explicitly, but ya know. She had no problem telling my last gay boss man about at least *some* of this shit to try and get me in his pants. Gross. I'd rather be raped in a cell.
 
-Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it as fact.
+Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it too seriously.
+
+Enjoy.
 
 ## Spring/Summer, 2022. The WPI "Masters" Experience.
 The story might start before this depending on who you ask, but this is the most interesting part of everything from my perspective. Let's start here.
