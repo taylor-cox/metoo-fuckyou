@@ -375,7 +375,7 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "That doesn't seem very healthy for the baby. On the other hand, it is surrounded by all that cake!"
 
-"Ohhh hayyy tay-tayyyy. Do you want to par-tay with may in Loui-say-ana?"
+"Ohhh hayyy tay-tayyyy. Do you want to par-tay with may in Loui-say-ana?" (how far *is* louisiana from upper texas? 🤔)
 
 "'How would you reccomend we send a POST Request to a static resource?' 'What a stupid fucking question.'"
 
