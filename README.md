@@ -290,6 +290,8 @@ With all this being said, I was wrong and am wrong for a lot of the shit I've pu
 ### Part 9: Final Thoughts
 I don't know. What the fuck?
 
+I guess in my fucked-up version of reality, bad people go to prison.
+
 I was pretty cringe. This whole situtation is pretty cringe. I fell in love with a pornstar. *You still haven't thrown me in a cell.*
 
 I'm pretty sure I'm crazy. You probably think I'm insane. I couldn't give two shits.
