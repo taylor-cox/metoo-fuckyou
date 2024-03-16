@@ -399,7 +399,7 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "Pussy pass: accepted. Proceed swiftly forward."
 
-"Love... is a dagger."
+"Love... is hate."
 
 "GLORIOUS PURPOSE!"
 
