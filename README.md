@@ -438,6 +438,8 @@ When she had a miscarriage, they got her a kid as opposed to a dog. It turns out
 
 I totally beat the hell out of her. She did threaten to ruin my Dad's life, the Dad who never layed a finger on her. I hope she dies alone and in pain. WHOOPS didn't mean to say that one out loud. Did lucie accidentally let out a lil widdle bit of the tooth? 
 
+[We'll be right back.](https://www.youtube.com/shorts/eE2E1Aldpbk)
+
 See you fucks in hell.
 
 # 🖕
