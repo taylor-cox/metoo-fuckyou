@@ -432,6 +432,8 @@ It's *strangely* accurate. Rose from the sea, mortal wound, false god stuff, idk
 
 I'm sorry to disappoint anyone who thought I could do better.
 
+Isn't plain text *so* much easier? 😊
+
 Welcome to Hollywood, Vegas, Spring Boot, Tiger Beetle, or whatever nickname you prefer. I prefer Old Loki, but giving yourself a nickname is pretty lame.
 
 How do you fix a cores issue?
