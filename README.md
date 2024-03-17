@@ -369,7 +369,7 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "I ate a whole King Cake in 1 night. It was delicious! (We didn't find the baby in it. Where did it go? Oh, I must've *eaten* it. Sorry, that one must've gone over your head.)"
 
-"Here's $10,000 in relocation assistance."
+"Here's $10,000 in relocation assistance." (I won't be needing that)
 
 "At WPI, we think that mental health issues and awareness are of the upmost importance, but *only* after 7 people kill themselves because of our dogshit job."
 
