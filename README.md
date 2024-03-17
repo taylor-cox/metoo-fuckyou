@@ -415,6 +415,8 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "Hey Ashish, you didn't *happen* to tell Neil that I didn't finish my Bachelor's, did you? It feels like a pretty important detail that you wouldn't want to miss out on telling the man who, you know, is funding my masters that you convinced me to scam into."  "...Oh, that? No, I haven't had a chance to mention it to him. Oopsie poopsies L+Ratio get fucked you tiny depressed proof of concept who I think is a pedo!" (glad to make your dreams come true, buddy-boi. "one-on-one" learning is highly effective stfu).
 
+"'Is she up and running?' 'That is such a good way of putting it.'"
+
 ### Part 10.5: Final Word(s)
 They're turning the fucking frogs gay, you know it, the CIA is a scam, they're hiding aliens from us, we're the bad guys, Trump did nothing wrong, Biden is a lizard, CIA killed MLK *and* JFK.
 
