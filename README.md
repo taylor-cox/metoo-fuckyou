@@ -7,12 +7,20 @@ I'm posting it online, directly to my GitHub, because fuck it and fuck you.
 
 It's going to be a fun trip down memory lane. Let's start.
 
-Note: I was motivated by my ex hinting towards coming out with all this shit for her #metoo moment a few years too late. She never said it explicitly, but ya know. She had no problem telling my last gay boss man about at least *some* of this shit to try and get me in his pants. Gross. I'd rather be raped in a cell.
+Note: I was motivated by my ex hinting towards coming out with all this shit for her #metoo moment a few years too late. She never said it explicitly, but ya know. She had no problem telling my last gay boss man about at least *some* of this shit to try and get me in his pants (I *think*). Gross. I'd rather be raped in a cell.
 
-Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it as fact.
+Note 2: Whenever I go into something I'm not to sure of, I'm going to *put tin foil hat on* so you know not to take it too seriously.
+
+Also, a good 90% of this shit is a gut feeling more real based-in-truth fact driven evidence.
+
+Take it with a grain of salt.
+
+Enjoy.
 
 ## Spring/Summer, 2022. The WPI "Masters" Experience.
-The story might start before this depending on who you ask, but this is the most interesting part of everything from my perspective. Let's start here.
+The story might start before this depending on who you ask, but this is the most interesting part of everything from my perspective. I'd be *so* willing to talk about all my fuck ups more, so feel free to ask me to have a chat! (no thanks).
+
+Let's start here.
 
 ---
 
@@ -27,7 +35,7 @@ This whole time, I'm being blackmailed by my boss to work harder or else my litt
 
 In EdTech, as it turns out, we call this a "learning experience".
 
-A little bit after I start my Masters, who conveniently shows up in my life but a staggeringly ✨beautiful✨  self-proclaimed "sex-addicted" PHD student who wanted to fuck me after her ex said to stay away from me.
+A little bit after I start my Masters, who conveniently shows up in my life but a staggeringly ✨average✨  self-proclaimed "sex-addicted" PHD student who wanted to fuck me after her ex said to stay away from me.
 
 In the wild west of Worcester, as an at *most* 6/10, we seize these opportunities.
 
@@ -109,6 +117,10 @@ I guess I did fist her which she wasn't too fond of, but we had a safe word at t
 
 "No", would actually be the term that I would use.
 
+"No" is a little hard to say when you're doing consentual-non-consent. Whatever the fuck that clusterfuck of words means to any of you.
+
+Safe word!
+
 Personally, looking back at what I've been through, *put tin foil hat on* I think she was being blackmailed, and if so, I would like to thank the PHD students of WPI or whoever put her up to that shit for giving me my own personal anal and very fistable sex slave.
 
 Crazy shit.
@@ -168,7 +180,7 @@ Let's keep that lil tidbit in the memory bank for a hot sec.
 ### Part 5: The Plan.
 At this point, I drop out of my Masters, and get pretty fucking depressed. I isolate in my room for about two months thinking of all the ways I'd like to kill everyone who just fucked me over (I didn't and won't kill anyone, but it is nice to fantisize sometimes. Don't tell me you haven't.). After about 1 month, I try to think of the best way to die, and what do you know: I have the best idea ever.
 
-I download government-sanctioned child porn directly onto my Windows 11 computer. (As I knew at the time), the US Government is the largest collector and distributor of child porn that has ever existed, and most of the websites on Tor at this point (outside of a few) are FBI honeypots. It's interesting to think that this shit is legal.
+I download government-sanctioned child porn directly onto my Windows 11 computer. (As I knew at the time), the US Government is the largest collector and distributor of child porn that has ever existed (I hope that's not just some bs I read on the internet), and most of the websites on Tor at this point (outside of a few) are FBI honeypots. It's interesting to think that this shit is legal.
 
 Are we the bad guys?
 
@@ -280,6 +292,10 @@ With all this being said, I was wrong and am wrong for a lot of the shit I've pu
 ### Part 9: Final Thoughts
 I don't know. What the fuck?
 
+Hire me.
+
+I guess in my fucked-up version of reality, bad people go to prison.
+
 I was pretty cringe. This whole situtation is pretty cringe. I fell in love with a pornstar. *You still haven't thrown me in a cell.*
 
 I'm pretty sure I'm crazy. You probably think I'm insane. I couldn't give two shits.
@@ -293,6 +309,10 @@ God *forbid* someone calls me George fucking Santos at this point.
 I'm sure some of this story is inaccurate, or possibly even out of touch with reality.
 
 My apologies. It's been a rough couple years, wouldn't ya know. Changes the way you think about things.
+
+This all seemed, I don't know, a little overboard, don't you think? You *have* my playlists.
+
+I don't know, fuck it.
 
 Here's all the information that I have. Welcome to Open Source Software.
 
@@ -351,13 +371,13 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "I ate a whole King Cake in 1 night. It was delicious! (We didn't find the baby in it. Where did it go? Oh, I must've *eaten* it. Sorry, that one must've gone over your head.)"
 
-"Here's $10,000 in relocation assistance."
+"Here's $10,000 in relocation assistance." (I won't be needing that)
 
 "At WPI, we think that mental health issues and awareness are of the upmost importance, but *only* after 7 people kill themselves because of our dogshit job."
 
 "That doesn't seem very healthy for the baby. On the other hand, it is surrounded by all that cake!"
 
-"Ohhh hayyy tay-tayyyy. Do you want to par-tay with may in Loui-say-ana?"
+"Ohhh hayyy tay-tayyyy. Do you want to par-tay with may in Loui-say-ana?" (how far *is* louisiana from upper texas? 🤔)
 
 "'How would you reccomend we send a POST Request to a static resource?' 'What a stupid fucking question.'"
 
@@ -377,11 +397,11 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "I might be a pedo, but hey, at least I got to fist a cunt." (wait a minute! that can mean two things!)
 
-"Are you talking to me, or putting on a show for the guy next door?"
+"Are you talking to me, or putting on a show for the guy next door?" (who the hell rents here in the winter?)
 
 "Pussy pass: accepted. Proceed swiftly forward."
 
-"Love... is a dagger."
+"Love... is hate."
 
 "GLORIOUS PURPOSE!"
 
@@ -397,10 +417,14 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "Hey Ashish, you didn't *happen* to tell Neil that I didn't finish my Bachelor's, did you? It feels like a pretty important detail that you wouldn't want to miss out on telling the man who, you know, is funding my masters that you convinced me to scam into."  "...Oh, that? No, I haven't had a chance to mention it to him. Oopsie poopsies L+Ratio get fucked you tiny depressed proof of concept who I think is a pedo!" (glad to make your dreams come true, buddy-boi. "one-on-one" learning is highly effective stfu).
 
+"'Is she up and running?' 'That is such a good way of putting it.'"
+
 ### Part 10.5: Final Word(s)
 They're turning the fucking frogs gay, you know it, the CIA is a scam, they're hiding aliens from us, we're the bad guys, Trump did nothing wrong, Biden is a lizard, CIA killed MLK *and* JFK.
 
 No, this is not sarcasm, this is 100% my unadulterated, unyielding thought of reality, 100%. 🙂
+
+Have I fallen off the other side of stupid to smart yet?
 
 I blame my mom. I don't know why, I just like to do that sometimes. 
 
@@ -409,6 +433,8 @@ She called me Lucifer growing up. That's not very nice.
 It's *strangely* accurate. Rose from the sea, mortal wound, false god stuff, idk bro the Bible is looking pretty fuckin submissive and breedable at this point 🫦.
 
 I'm sorry to disappoint anyone who thought I could do better.
+
+Isn't plain text *so* much easier? 😊
 
 Welcome to Hollywood, Vegas, Spring Boot, Tiger Beetle, or whatever nickname you prefer. I prefer Old Loki, but giving yourself a nickname is pretty lame.
 
@@ -420,6 +446,14 @@ When she had a miscarriage, they got her a kid as opposed to a dog. It turns out
 
 I totally beat the hell out of her. She did threaten to ruin my Dad's life, the Dad who never layed a finger on her. I hope she dies alone and in pain. WHOOPS didn't mean to say that one out loud. Did lucie accidentally let out a lil widdle bit of the tooth? 
 
+[We'll be right back.](https://www.youtube.com/shorts/eE2E1Aldpbk)
+
 See you fucks in hell.
 
 # 🖕
+
+[![Watch the video](https://img.youtube.com/vi/kCXTq-fWWio/hqdefault.jpg)](https://www.youtube.com/embed/kCXTq-fWWio)
+
+[Another One](https://www.youtube.com/watch?v=e5XmMWnsiqU)
+
+[Another One](https://www.youtube.com/watch?v=nln5PxD9xd8&list=LL&index=37)
