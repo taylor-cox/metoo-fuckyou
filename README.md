@@ -424,6 +424,8 @@ They're turning the fucking frogs gay, you know it, the CIA is a scam, they're h
 
 No, this is not sarcasm, this is 100% my unadulterated, unyielding thought of reality, 100%. 🙂
 
+Have I fallen off the other side of stupid to smart yet?
+
 I blame my mom. I don't know why, I just like to do that sometimes. 
 
 She called me Lucifer growing up. That's not very nice.
