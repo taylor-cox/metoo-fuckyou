@@ -446,7 +446,7 @@ When she had a miscarriage, they got her a kid as opposed to a dog. It turns out
 
 I totally beat the hell out of her. She did threaten to ruin my Dad's life, the Dad who never layed a finger on her. I hope she dies alone and in pain. WHOOPS didn't mean to say that one out loud. Did lucie accidentally let out a lil widdle bit of the tooth? 
 
-Her legs looked a lil somethin like [this](ap_16676710338_wide-747c6ec57ae8cc678cce471062a6e34a56173896-536178851.jpg) 😂.
+Her legs looked a lil somethin like [this](ap_16676710338_wide-747c6ec57ae8cc678cce471062a6e34a56173896-536178851.jpg) 😂. That was nothing compared to the ribs and the face though.
 
 [We'll be right back.](https://www.youtube.com/shorts/eE2E1Aldpbk)
 
