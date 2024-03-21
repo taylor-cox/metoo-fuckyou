@@ -316,8 +316,6 @@ I don't know, fuck it.
 
 Here's all the information that I have. Welcome to Open Source Software.
 
-I guess the question is, would *you* sell your kids information to a company which actively supports pedophiles? 😊
-
 Feast, motherfuckers.
 
 P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for Narcissus. Oh well. I really enjoyed it, and if you were me you would too.
