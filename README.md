@@ -266,7 +266,7 @@ It's a very interesting state of affairs to say the least.
 
 I'll give you one last hint about the strategy at this point: *I'm pissing you off on purpose. You won't, can't, or are waiting patiently to send me to jail, and I find this all very amusing.*
 
-Jokes on me, jokes on you, cutting through the bullshit, in my humble opinion, everyone sucks here.
+Jokes on me, jokes on you, cutting through the bullshit, in my humble opinion, everyone sucks here. (*To be fair*, I suck the most, but it's pretty bad all around.)
 
 ---
 
