@@ -424,7 +424,7 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 ### Part 10.5: Final Word(s)
 They're turning the fucking frogs gay, you know it, the CIA is a scam, they're hiding aliens from us, we're the bad guys, Trump did nothing wrong, Biden is a lizard, CIA killed MLK *and* JFK.
 
-By the way, nothing but respect for the last guys. I don't _want_ to reveal their secrets if I didn't already 🤫. They _did_ want it released on a timeline though, and I was more than happy to oblige :).
+By the way, nothing but respect for the last guys (I _am_ punching up, after all). I don't _want_ to reveal their secrets if I didn't already 🤫. They _did_ want it released on a timeline though, and I was more than happy to oblige :).
 
 No, this is not sarcasm, this is 100% my unadulterated, unyielding thought of reality, 100%. 🙂
 
