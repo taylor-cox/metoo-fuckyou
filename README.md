@@ -419,6 +419,8 @@ P.S.: I'm pretty sure I lost the video of an 'Ashish' weeping, *presumably* for 
 
 "'Is she up and running?' 'That is such a good way of putting it.'"
 
+"'Taylor, did you do this thing?' 'Yes.' 'Ok, but _only_ this thing?' 'What a stupid fucking question'"
+
 ### Part 10.5: Final Word(s)
 They're turning the fucking frogs gay, you know it, the CIA is a scam, they're hiding aliens from us, we're the bad guys, Trump did nothing wrong, Biden is a lizard, CIA killed MLK *and* JFK.
 
