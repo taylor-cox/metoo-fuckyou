@@ -426,6 +426,8 @@ They're turning the fucking frogs gay, you know it, the CIA is a scam, they're h
 
 By the way, nothing but respect for the last guys (I _am_ punching up, after all). I don't _want_ to reveal their secrets if I didn't already 🤫. They _did_ want it released on a timeline though, and I was more than happy to oblige :).
 
+Oh, and _by the way_, promoting me instead of Morgan was _unbelieveable_, especially after he stuck around. You asshole.
+
 No, this is not sarcasm, this is 100% my unadulterated, unyielding thought of reality, 100%. 🙂
 
 Have I fallen off the other side of stupid to smart yet?
