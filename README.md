@@ -25,7 +25,7 @@ Let's start here.
 ---
 
 ### Part 1: Interesting Developments.
-I try to kill myself, because I scammed my way into my masters at the behest of my old boss PHD man who (I believe) thought I was a massive racist. Why? 
+I try to kill myself, because ~~I scammed my way into my masters at the behest of my old boss PHD man who (I believe) thought I was a massive racist.~~ Apologies. It was because I failed out of my Bachelor's Degree _and_ was scamming my way into my Masters. Why? 
 
 I posted some shit on the internet, ending it with something along the lines of "Dang, you caught me, I hate black people", sarcastically. Much to my suprise, people actually started *believing* I hate black people. I can understand the confusion.
 
